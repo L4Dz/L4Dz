@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @L4Dz
-- 👀 I’m interested in kanye west
+- 👀 I’m interested in music
 - 🌱 I’m currently learning num
 - 💞️ I’m looking to collaborate on everything
 - 📫 How to reach me ladielsonrenner@gmail.com
