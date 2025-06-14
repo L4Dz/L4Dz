@@ -13,7 +13,7 @@ I'm *L4Dz* – interested in music and code.
 
 ---
 
-"It is what it is"
+"It is what it is - me"
 <!---
 L4Dz/L4Dz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
